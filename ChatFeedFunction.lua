@@ -18,12 +18,12 @@
 
     end
     -- Functions
-ClearKilledMessage
-ClearKillerMessages
-ClearTeamKillerMessages
-ClearTeamKilledMessages
+The fuck??? how..
+lol bitchass get nae naed
+LOL OMG XD SRRY LOL
+nigger
 
-AddKilledMessage
-AddKillerMessage
-AddTeamKillerMessage
-AddTeamKilledMessage
+bruhhh this games shit
+omg yur so bad xddD
+bruh you were in my way
+omg fucking faggot ass
